@@ -1,10 +1,20 @@
 <h1>New Retro Casino (Нью ретро): Официальный сайт</h1>
 
 <p><br />
-<strong><a href="https://redirway.com/first1/?ref=177">Официальный сайт нью ретро</a>&nbsp;&lt;---<br />
-<a href="https://redirway.com/first1/?ref=177">Зеркало</a> &lt;---<br />
-<a href="https://t.me/top_zerkala_promokody">Телеграм канал с актуальными зеркалами и промокодами&nbsp;казино</a>&nbsp;&lt;---</strong><br />
-<br />
+<table border="1" cellpadding="1" cellspacing="1" style="width:500px">
+	<tbody>
+		<tr>
+			<td><strong><a href="https://redirway.com/first1/?ref=177">Официальный сайт нью ретро</a></strong></td>
+		</tr>
+		<tr>
+			<td><strong><a href="https://redirway.com/first1/?ref=177">Зеркало</a></strong></td>
+		</tr>
+		<tr>
+			<td><strong><a href="https://t.me/top_zerkala_promokody">Телеграм канал с актуальными зеркалами и промокодами&nbsp;казино</a></strong></td>
+		</tr>
+	</tbody>
+</table><br />
+
 <img alt="newretrocasino" src="https://github.com/user-attachments/assets/77794fd0-d22b-4c17-bfa0-5e1332e0818b" /><br />
 
 <h2>Как получить доступ к зеркалам Нью Ретро Казино?</h3>
