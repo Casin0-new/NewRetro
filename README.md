@@ -5,8 +5,7 @@
 <a href="https://redirway.com/first1/?ref=177">Зеркало</a> &lt;---<br />
 <a href="https://t.me/top_zerkala_promokody">Телеграм канал с актуальными зеркалами и промокодами&nbsp;казино</a>&nbsp;&lt;---</strong><br />
 <br />
-&nbsp;</p>
-![image](https://github.com/user-attachments/assets/77794fd0-d22b-4c17-bfa0-5e1332e0818b)
+<img alt="newretrocasino" src="https://github.com/user-attachments/assets/77794fd0-d22b-4c17-bfa0-5e1332e0818b" /><br />
 
 <h2>Как получить доступ к зеркалам Нью Ретро Казино?</h3>
 
