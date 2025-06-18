@@ -10,7 +10,7 @@
 			<td><strong><a href="https://redirway.com/first1/?ref=177">Зеркало</a></strong></td>
 		</tr>
 		<tr>
-			<td><strong><a href="https://t.me/top_zerkala_promokody">Телеграм канал с актуальными зеркалами и промокодами&nbsp;казино</a></strong></td>
+			<td><strong><a href="https://t.me/+nCiDKqBpnqU5YmZi">Телеграм канал с актуальными зеркалами и промокодами&nbsp;казино</a></strong></td>
 		</tr>
 	</tbody>
 </table><br />
