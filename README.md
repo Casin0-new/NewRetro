@@ -12,6 +12,9 @@
 		<tr>
 			<td><strong><a href="https://t.me/+nCiDKqBpnqU5YmZi">Телеграм канал с актуальными зеркалами и промокодами&nbsp;казино</a></strong></td>
 		</tr>
+		<tr>
+			<td><strong><a href="https://t.me/newretro_top">Телеграм канал нью ретро казино</a></strong></td>
+		</tr>
 	</tbody>
 </table><br />
 
